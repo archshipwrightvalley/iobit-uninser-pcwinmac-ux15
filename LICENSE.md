@@ -1,4 +1,4 @@
-# 
+# Élite IObit Uninstaller scripts pour Mac OS | Premium IObit Uninstaller scripts pour PC Windows. Avec analyse approfondie et organisation du bureau — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
